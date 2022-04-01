@@ -542,3 +542,8 @@ We then cleaned up all the fiberglass dust, talked about future plans, and ended
 
 Things for the Future:
 Make sure people wear gloves while angle grinding the hulls, the fiberglass dust will get all over your hands and cause severe itching.
+
+## 11/13/21
+
+This workday was extremley productive for the quarter. It was during this worday where we accomplished our goal that we set out for Fall Quarter. We put the two hull halves together using resin and fiberglass. The process took around an hour and a half. We alligned the two hull halves together using the female mold table. We placed wooden blocks in the female mold and placed the bottom half on the top of them. Then we placed the top half on top of the bottom half. Then we placed strips of fiberglass cloth around the outer edges of the two halves and hit them with resin (Epoxy Resin) After wards we placed wider strips of fiberglass cloth on the top of teh previous fiberglass cloth strips. We hit it with even more resin. We wanted to attempt to repeat this process on the inside of the two hulls however the resin wasn't cured completley yet. It took around one and a half weeks for the resin to cure completley and when it did the the hull was finally one and we reached our goal this quarter. Afterwards we planned for next quarter workdays.
+
